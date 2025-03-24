@@ -10,11 +10,11 @@
 
 - 🎓 I’m an undergraduate at **NSBM.**
 
+- 🎖  Subcommittee Member at [NSBM IEEE Student Branch](https://github.com/IEEE-Student-Branch-NSBM).
+
 - 📫 How to reach me **sahankaushalya1102@gmail.com.**
 
-- ⚡ Fun fact **💬 I love discussing tech, innovation, and open-source projects! Let's connect and collaborate.**
-
-- 🎖  Subcommittee Member at [NSBM IEEE Student Branch](https://github.com/IEEE-Student-Branch-NSBM).
+- ⚡ Fun fact **Call me as DIAS.** 😉
 
 ---
 
